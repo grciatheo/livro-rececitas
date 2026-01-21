@@ -2,8 +2,8 @@
 
 ### Ingrdientes
 
-* boiola
-* gay
-  1. otario
-  2. ​
+* 1 kg peito de frango
+* molhos:
+  1. ketchup
+  2. mostarda​
 
